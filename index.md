@@ -20,5 +20,5 @@ We also have a trello board which you can check out here ! [Godzilla Gaming Deve
 
 * * *
 
-April 12th 2017 Godzilla Gaming Team:
+May 5th 2017 Godzilla Gaming Team:
 This is a diclaimer. This website is for a school project. Godzilla gaming is a fictional company and we are not actually selling anything.
